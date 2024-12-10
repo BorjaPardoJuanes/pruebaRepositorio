@@ -1,3 +1,4 @@
-Borja
+Borja Pardo Juanes
 10/12/24
-ACADEMIA XÚQUER
+AXuquer
+Adiós
